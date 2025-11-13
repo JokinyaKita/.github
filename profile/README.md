@@ -1,6 +1,6 @@
 # 👋 Selamat datang di JokinyaKita
 
-Kami adalah komunitas mahasiswa yang membantu menyelesaikan berbagai **tugas dan project akademik** secara profesional, cepat, dan berkualitas.  
+Kami adalah komunitas mahasiswa yang membantu menyelesaikan berbagai **tugas dan project** secara profesional, cepat, dan berkualitas.  
 Kami percaya bahwa setiap tugas punya solusi — dan **kita kerjakan bareng!**
 
 ---
