@@ -21,7 +21,7 @@ Kami percaya bahwa setiap tugas punya solusi — dan **kita kerjakan bareng!**
 
 ## 🤝 Bergabung Bersama Kami
 Ingin ikut berkontribusi atau berkolaborasi?  
-Hubungi kami di: **contact@jokinyakita.com**
+Hubungi kami di: **tomingselingga2512@gmail.com**
 
 ---
 
